@@ -1,0 +1,1 @@
+Sambar is a lentil-based vegetable stew/soup, cooked with pigeon pea and tamarind broth. It is popular in South Indian and Sri Lankan cuisines. It is usually eaten with idli, dosa, medu vada, uttapam or rice. 
